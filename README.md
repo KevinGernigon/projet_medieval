@@ -1,2 +1,0 @@
-# cathedral_3d
- 
